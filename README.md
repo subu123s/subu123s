@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Subhashree
 - 👀 I’m interested in Softwear Field
-- 🌱 I’m currently learning (B.Tac)_CSE
+- 🌱 I’m currently learning (B.Tach)_CSE
 - 💞️ I’m looking to collaborate on a specific internship opportunity.
 -  Introvert Personality !!!
 
